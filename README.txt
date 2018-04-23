@@ -18,6 +18,9 @@ However this is optional for the moment main focus is for the ganulas with the b
 because I am at home I had to create new pictures so I used white chocolate orb, sesam seeds and paper circles.
 a smaller granula is possible but I couldn't find one atm.
 
+Real samples are:
+North Holland calcite unwashed.jpg
+North holland calcite 0.5-0.63.jpg
 
 Problems at the moment:
 
